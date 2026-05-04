@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="abstragedy on tumblr.jpg" width="400">
+  <img src="Gangle speed *watches* meme.jpg" width="400">
 </p>
 
 <p align="center">
