@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="enby%20lesbians.jpg" width="400">
+  <img src="abstragedy on tumblr.jpg" width="400">
 </p>
 
 <p align="center">
