@@ -7,5 +7,5 @@
 </p>
 
 <p align="center">
-  <img src="-6.jpg" width="400">
+  <img src="Gangle card.jpg" width="400">
 </p>
